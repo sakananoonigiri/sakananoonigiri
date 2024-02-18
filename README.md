@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning kawaii illust
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me ?
-- 😄 Pronouns: ???
-- ⚡ Fun fact: ???
+- 😄 Pronouns: ???🐟🍙!!!
+- ⚡ Fun fact: ???☺️☺️☺️😽😽
 
 <!---
 sakananoonigiri/sakananoonigiri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
